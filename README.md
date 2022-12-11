@@ -1,1 +1,1 @@
-https://busbarea.github.io/rsschool-cv/cv
+https://busbarea.github.io/rsschool-cv/
