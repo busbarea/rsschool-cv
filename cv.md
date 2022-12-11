@@ -4,7 +4,7 @@
 
 ## Contacts:
 
-*Telegramm @Jmillus*
+*Telegramm: @Jmillus*
 
 ## About me:
 
